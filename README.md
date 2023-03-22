@@ -1,0 +1,8 @@
+# 98BARAME.github.io![Likelion_logo](https://user-images.githubusercontent.com/127665502/226857609-f97c5441-a7f3-4980-bd62-9922a6e78571.png)
+![KakaoTalk_20230322_145413541](https://user-images.githubusercontent.com/127665502/226857642-db6b065c-0e81-48c1-b7d3-94544e1ead9d.jpg)
+![KakaoTalk_20230322_145429732](https://user-images.githubusercontent.com/127665502/226857652-64534d67-dbd3-4603-a8ce-b8125b53d142.jpg)
+![KakaoTalk_20230322_145459120](https://user-images.githubusercontent.com/127665502/226857656-4730f2e5-7ce9-46de-8ef3-03663de0435d.jpg)
+![KakaoTalk_20230322_145629556](https://user-images.githubusercontent.com/127665502/226857660-c6a93727-2431-4ff7-8109-d2ca63e9655f.jpg)
+![KakaoTalk_20230322_145655986](https://user-images.githubusercontent.com/127665502/226857664-b143a09c-ffd9-47d5-a158-728528908a95.jpg)
+![KakaoTalk_20230322_163742895](https://user-images.githubusercontent.com/127665502/226857669-ae94bcf3-0cce-493e-9bf7-670a02e5c208.jpg)
+[index.html.txt](https://github.com/98BARAME/98BARAME.github.io/files/11038350/index.html.txt)
